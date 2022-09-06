@@ -1,1 +1,1 @@
-只是Rick Roll的诈骗
+Just a scam by Rick Roll
